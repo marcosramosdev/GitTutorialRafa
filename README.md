@@ -194,4 +194,4 @@ Recomendo sempre vocês darem uma olhada na [documentação do Git](https://git-
 
 Até semana que vem, um beijo!
 
-Moça eu namoro sua safada
+Moça eu namoro!
